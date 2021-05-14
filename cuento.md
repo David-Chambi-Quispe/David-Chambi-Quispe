@@ -1,1 +1,1 @@
-Esta es la historia de una joven de [....], llamémosla Sara. De pequeña, Sara tenía miedo a la oscuridad, hasta que adoptó a un perro que le hacía compañía.
+Durante años, Sara dormía tranquila porque sabía que bajo la cama estaba su perro, y si tenía miedo solo tenía que extender la mano: entonces, el perro empezaba a lamerla hasta que se quedaba dormida.
