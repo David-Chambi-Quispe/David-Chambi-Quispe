@@ -1,1 +1,1 @@
-Durante años, Sara dormía tranquila porque sabía que bajo la cama estaba su perro, y si tenía miedo solo tenía que extender la mano: entonces, el perro empezaba a lamerla hasta que se quedaba dormida.
+Así pasaron los años y Sara se hizo adulta. Una noche, en la radio, escuchó que cerca de [....] estaba en busca y captura un asesino muy peligroso.
